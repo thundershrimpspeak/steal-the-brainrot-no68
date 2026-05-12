@@ -1,4 +1,4 @@
-#  
+#  instant Scripts for steal the brainrot base is the best steal the brainrot base Script, featuring auto-upgrade and auto-farm. Safe and powerful for
 
 
 
